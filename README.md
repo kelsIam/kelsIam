@@ -4,7 +4,7 @@
 
 📚 My passion for lifelong learning has defined my journey in the industry. 
 
-When I’m away from keyboard, you can find me walking about with a camera 📸 in hand, 🐈‍⬛ cats in tow 🐈, and a tote bag filled with books, blue headphones 🎧, and a journal 📓.
+When I’m away from my desk, you can find me walking about with a camera 📸 in hand, 🐈‍⬛ cats in tow 🐈, and a tote bag filled with books, blue headphones 🎧, and a journal 📓.
 
 <!---
 kelsIam/kelsIam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
